@@ -2,4 +2,3 @@
 👋 Hi, I’m Kotresh <br/>
 📍 From Karnataka(Kotturu) <br/>
 👀 Studying in @IIT-Hyderabad <br/>
-🌱 I’m currently learning Nothing<br/>
